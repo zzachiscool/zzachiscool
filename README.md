@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @zzachiscool
+- 👀 I’m interested in Guitar
+- 🌱 I’m currently learning guitar
+- 📫 How to reach me ... this
+- 😄 Pronouns: but/cheic
+- ⚡ Fun fact: im hot
